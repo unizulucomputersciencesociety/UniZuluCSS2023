@@ -6,4 +6,4 @@ education and many other fields in the industry, making literacy/proficiency of 
 the economic well-being of a country in the 21st century.🤖🦾
 
 This society is rooted to developing internationally competent Computer Scientists and computer 
-consciousness for the general Unizulu student populous.😎❤️
+consciousness for the general University of Zululand student populous.😎❤️
